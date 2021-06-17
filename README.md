@@ -1,4 +1,4 @@
-- 👋 Hi, I’m The Invincible Shrjal Shandilya
+- 👋 Hi, I’m The Invincible Shrajal Shandilya
 - 👀 I’m interested in Digital Marketing & Coding
 - 🌱 I’m an EXPERT In Facebook Ads, Seo & Copywriting & I am currently learning Java
 - 💞️ I’m looking to collaborate on NOTHING
