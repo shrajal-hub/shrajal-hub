@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @shrajal-hub
+- 👋 Hi, I’m The Invincible Shrjal Shandilya
 - 👀 I’m interested in Digital Marketing & Coding
 - 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on NOTHING
 - 📫 Reach out to me @ shrajalkumar94@gmail.com
 
 <!---
